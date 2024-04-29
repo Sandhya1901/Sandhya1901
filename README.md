@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sandhya1901
-- 👀 I’m interested in Python, chess
+- 👀 I’m interested in tech, chess
 - 🌱 I’m currently pursuing Bachelor in Computer Science
 - 📫 How to reach me _ by email - sandhyasand2004@gmail.com
 - 😄 Pronouns: She/her
